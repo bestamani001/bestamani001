@@ -1,6 +1,6 @@
 a- 👋 Hi, I’m @bestamani001
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...ert u
 - 💞️ I’m looking to collaborate on ...badfg
 - 📫 How to reach me ...89044534312aer
 845rtyeir krykw rthzdf
