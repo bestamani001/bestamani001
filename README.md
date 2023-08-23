@@ -1,7 +1,7 @@
 a- 👋 Hi, I’m @bestamani001
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ert u
-- 💞️ I’m looking to collaborate on ...badfg eryryyreyer
+- 💞️ I’m looking to collaborate on ...badfg eryryyreyerje ty
 - 📫 How to reach me ...89044534312aer
 845rtyeir krykw rthzdf
 <!---tdhtrhр укееу
