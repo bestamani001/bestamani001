@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ert u
 - 💞️ I’m looking to collaborate on ...badfg eryryyreyerje ty
-- 📫 How to reach me ...89044534312aer kuyje65
+- 📫 How to reach me ...89044534312aer kuyje65п ук
 845rtyeir krykw rthzdf
 <!---tdhtrhр укееу
 bestamani001/bestamani001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
