@@ -1,5 +1,5 @@
 gaergre a- 👋 Hi, I’m @bestamani001
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...l tl ty utl
 - 🌱 I’m currently learning ...ert uu e65
 - 💞️ I’m looking to collaborate on ...badfg eryryyreyerje tyu ert
 - 📫 How to reach me ...89044534312aer kuyje65п укh rt 6456tryrt k7uee 
